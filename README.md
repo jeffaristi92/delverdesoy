@@ -1,2 +1,2 @@
 # delverdesoy
-plataforma webpara hinchas de ateltico nacional
+plataforma web para hinchas de ateltico nacional www.delverdersoy.com
